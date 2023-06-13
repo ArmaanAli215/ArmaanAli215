@@ -4,4 +4,4 @@
 
 🚀 Directer of TNS
 
-🔗 https://linkfly.co/itz-armaan
+🔗 https://linkfly.to/itz-armaan

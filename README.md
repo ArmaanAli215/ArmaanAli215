@@ -4,4 +4,4 @@
 
 🚀 Directer of TNS
 
-🔗 https://armaan.ddns.me
+🔗 https://armaan.ddns.net
